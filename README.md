@@ -8,7 +8,7 @@
 
 * **I** can't depend on nobody to make my situation better
 
-* Take care of my people
+* Take care of my people.
 
 ![My Favorite food](https://w7.pngwing.com/pngs/249/19/png-transparent-google-logo-g-suite-google-guava-google-plus-company-text-logo.png)
 
